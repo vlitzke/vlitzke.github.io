@@ -13,6 +13,7 @@ I have tried keeping lists of finished books over the years on scraps of paper o
 - Pynchon, Thomas: *Gravity's Rainbow*
 
 ### To-read list: 
+- Balle, Solveij: *On the Calculation of Volume*
 - Brett, Peter V: *The Painted Man (Demon Cycle Series)*
 - Brown, Elaine: *A Taste of Power: A Black Woman's Story*
 - Dazai, Osamu: *No Longer Human* (Tom)
